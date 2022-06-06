@@ -1,3 +1,8 @@
 # ychenxaing
-HI,I' YCX.<br>
-Nice to Meet YOU!!
+HI,I'm YC.<br>
+I like to eat:
+* Chocolate🍫
+* bubble tea🧋
+
+
+Nice to Meet You!!
